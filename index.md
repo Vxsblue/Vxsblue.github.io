@@ -10,3 +10,5 @@ Später, bei der Preisverleihung, war Tux überglücklich. Er drückte den Pokal
 
 
 # 🐧Tux auf Reisen✈
+
+Tux fuhr in einem Taxi in Richtung Flughafen. Er hatte sich nähmlich den Wunsch erfüllt,eine Reise in den Süden zu unternehmen.
