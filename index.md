@@ -20,7 +20,7 @@ Dann sagt er nachdenklich:👨🏼"Eigentlich hätte ich mir für den Preis gena
 
 Tux fuhr in einem Taxi🚕 in Richtung Flughafen. Er hatte sich nämlich den Wunsch erfüllt, eine Reise in den Süden zu unternehmen. Und heute sollte es losgehen! Dann hielt das Taxi. Tux holte seinen blauen Koffer aus dem Kofferraum des Taxis. Dann lief er in Richtung Flughafen. Als er dann in dem Flughafen war setzte er sich auf einen Wartestuhl. Dann wartete er. Dann, endlich, tönte es aus einem Lautsprecher:*" Bitte alle aus Flug Penguin Air 134rt7 an Gate B3 kommen!"* Tux lief zur Station B. Kurz darauf stieg er in sein Flugzeug, dann setzte er sich auf seinen Platz. Natürlich schnallte er sich auch den Sicherheitsgurt um. Dann startete das Flugzeug. 
 
-Nach einiger Zeit kam eine nette Stewardess und fragte Tux:*"Was möchten sie essen?"* Tux wählte Sardinen und Lachsfilet. Lecker! Dann machte er ein Nickerchen.
+Nach einiger Zeit kam eine nette Stewardess und fragte Tux:*"Was möchten sie essen?"* Tux wählte Sushi und Eis.🍱🍨Er trank einen Milchshake.🥃 Lecker! Dann machte er ein Nickerchen.
 
 Schließlich landete das Flugzeug.  
 Fortsetzung folgt...
