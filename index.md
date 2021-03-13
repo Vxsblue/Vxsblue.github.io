@@ -6,7 +6,7 @@ Plötzlich tönte es aus einem Lautsprecher: 📢 *"Tux Frost, bitte an den Star
 Später, bei der Preisverleihung, war Tux überglücklich. Er drückte den Pokal an sich und dachte:*"Heute ist der beste Tag in meinem Leben!"*
 
 
-🤣Witzig, witzig!😂🍎
+# 🤣Witzig, witzig!😂🍎#
 
 Ein Mann sagt zu dem andern:👨🏻"Willst du meine Apfelkerne probieren?Die machen schlauer!"  
 Der andere fragt:👨🏼"Wieviel sollen die denn kosten?"  
