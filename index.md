@@ -7,6 +7,7 @@ Später, bei der Preisverleihung, war Tux überglücklich. Er drückte den Pokal
 
 
 🤣Witzig, witzig!😂🍎
+
 Ein Mann sagt zu dem andern:👨🏻"Willst du meine Apfelkerne probieren?Die machen schlauer!" Der andere fragt:👨🏼"Wieviel sollen die denn kosten?"👨🏻"Drei Euro!" Der andere Mann kauft die Kerne und fängt an sie zu kauen. Dann sagt er nachdenklich:👨🏼"Eigentlich hätte ich mir für den Preis genausogut einen ganzen Apfel mit genausovielen Äpfeln kaufen können."👨🏻 "Sehen Sie, es klappt schon!" 
 
 
