@@ -24,3 +24,10 @@ Nach einiger Zeit kam eine nette Stewardess und fragte Tux:*"Was möchten sie es
 
 Schließlich landete das Flugzeug.  
 Fortsetzung folgt...
+
+
+
+# 🤣 Witzig,witzig!😂🐄
+
+Bauer Klaus erklärt Klein-lisa:👨‍🌾*"Bei einer Kuhgeburt kommt zuerst der Kopf, dann die Brust und dann der Rest!"* 
+Klein-lisa  sagt :👧🏼*"Toll!Und wie klebt man das dann wieder zusammen?"*
