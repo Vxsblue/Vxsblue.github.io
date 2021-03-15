@@ -37,7 +37,7 @@ Klein-lisa  sagt :👧🏼*"Toll!Und wie klebt man das dann wieder zusammen?"*
 
 
 # 🐧 Tux auf Reisen 2✈
-Nachdem das Flugzeug gelandet war, stieg Tux  aus dem Flugzeug. Sofort empfangen ihn Sonnenschein und Wärme. Er stand einen kurzen Moment da und ihm wurde klar: er hatte Urlaub! Kurz darauf musste er schon weiter. Nachdem  er durch die Passkontrolle gegangen war und seinen Koffer abgeholt hatte ging er aus dem Flughafen von Paradieso Pinguino. Er wartete. Schon nach 10 Minuten kam ein netter Papageienherr. Er und Tux gingen gemeinsam zu dem Auto des Papageien. Auf dem Weg zum Auto ezählte der Herr das er Arn Krahicho hieß.
+Nachdem das Flugzeug gelandet war, stieg Tux  aus dem Flugzeug. Sofort empfangen ihn Sonnenschein und Wärme. Er stand einen kurzen Moment da und ihm wurde klar: er hatte Urlaub! Kurz darauf musste er schon weiter. Nachdem  er durch die Passkontrolle gegangen war und seinen Koffer abgeholt hatte ging er aus dem Flughafen von Paradieso Pinguino. Er wartete. Schon nach 10 Minuten kam ein netter Papageienherr. Er und Tux gingen gemeinsam zu dem Auto des Papageien. Auf dem Weg zum Auto ezählte der Herr das er Arn Krahicho hieß. Die beiden fuhren in Arns Auto zu dem Hotel in dem Arn arbeitete.
 
 
 
