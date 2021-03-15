@@ -32,3 +32,8 @@ Fortsetzung folgt...
 Bauer Klaus erklärt Klein-lisa:👨‍🌾*"Bei einer Kuhgeburt kommt zuerst der Kopf, dann die Brust und dann der Rest!"* 
 
 Klein-lisa  sagt :👧🏼*"Toll!Und wie klebt man das dann wieder zusammen?"*
+
+
+
+# 🐧 Tux auf Reisen 2✈
+Nachdem das Flugzeug gelandet war, stieg Tux  aus dem Flugzeug. Sofort empfangen ihn Sonnenschein und Wärme. Er stand einen kurzen Moment da und ihm wurde klar: 
