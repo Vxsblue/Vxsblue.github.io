@@ -18,7 +18,8 @@ Dann sagt er nachdenklich:👨🏼"Eigentlich hätte ich mir für den Preis gena
 
 # 🐧Tux auf Reisen✈
 
-Tux fuhr in einem Taxi🚕 in Richtung Flughafen. Er hatte sich nämlich den Wunsch erfüllt, eine Reise in den Süden zu unternehmen. Und heute sollte es losgehen! Dann hielt das Taxi. Tux holte seinen blauen Koffer aus dem Kofferraum des Taxis. Dann lief er in Richtung Flughafen. Als er dann in dem Flughafen war setzte er sich auf einen Wartestuhl. Dann wartete er. Dann, endlich, tönte es aus einem Lautsprecher:*" Bitte alle aus Flug Penguin Air 134rt7 an Gate B3 kommen!"* Tux lief zur Station B. Kurz darauf stieg er in sein Flugzeug, dann setzte er sich auf seinen Platz. Natürlich schnallte er sich auch den Sicherheitsgurt um. Dann startete das Flugzeug. 
+Tux fuhr in einem Taxi🚕 in Richtung Flughafen. Er hatte sich nämlich den Wunsch erfüllt, eine Reise in den Süden zu unternehmen. Und heute sollte es losgehen! Dann hielt das Taxi. Tux holte seinen blauen Koffer aus dem Kofferraum des Taxis. Dann lief er in Richtung Flughafen. Als er dann in dem Flughafen war setzte er sich auf einen Wartestuhl. Dann wartete er. Dann, endlich, tönte es aus einem Lautsprecher:*" Bitte alle aus Flug Penguin Air 134rt7 an Gate B3 kommen!"* Tux lief zum Gate B3.
+ Kurz darauf stieg er in sein Flugzeug, dann setzte er sich auf seinen Platz. Natürlich schnallte er sich auch den Sicherheitsgurt um. Dann startete das Flugzeug. 
 
 Nach einiger Zeit kam eine nette Stewardess und fragte Tux:*"Was möchten sie essen?"* Tux wählte Sardellen und Lachsfilet.Er trank einen Milchshake.🥃 Lecker! Dann machte er ein Nickerchen.
 
@@ -36,4 +37,8 @@ Klein-lisa  sagt :👧🏼*"Toll!Und wie klebt man das dann wieder zusammen?"*
 
 
 # 🐧 Tux auf Reisen 2✈
-Nachdem das Flugzeug gelandet war, stieg Tux  aus dem Flugzeug. Sofort empfangen ihn Sonnenschein und Wärme. Er stand einen kurzen Moment da und ihm wurde klar: 
+Nachdem das Flugzeug gelandet war, stieg Tux  aus dem Flugzeug. Sofort empfangen ihn Sonnenschein und Wärme. Er stand einen kurzen Moment da und ihm wurde klar: er hatte Urlaub! Kurz darauf musste er schon weiter. Nachdem  er durch die Passkontrolle gegangen war und seinen Koffer abgeholt hatte ging er aus dem Flughafen von Paradieso Pinguino. Er wartete. schon nach 10 Minuten kam ein netter Papageienherr. Er und Tux gingen gemeinsam 
+
+
+
+
