@@ -1,3 +1,5 @@
+# Meine Geschichten Website 💙
+
 # Die Geschichte vom Kaktus 2 🌵
 Die beiden saßen einige Stunden da und überlegten. Piek fragte:*"Wie wäre es mit Stachel?" "Nö,So heißt doch jeder Kaktus!"*,protestierte sein Freund.*" Grüni?"* Darauf antwortete sein Freund noch nicht einmal.Die beiden dachten weiter.*"Was hältst du von Sandy?" "Geht nicht!""Wieso?" "So heißt doch schon die Wüstenmaus!"* erinnerte er Piek.*"Ja, und?" "Ich will nicht wie jemand heißen, der versucht, mich anzuknabbern!" " Wie wäre es mit englischen Namen?"* fragte Piek.*"Desert meinst du?" "Nicht nur Wüste!""Cactus auf keinen Fall!" "Was denn dann?"* fragte Piek erschöpft.*"Bei meinen Stachel Spitzen!Das ist echt..."* Doch bevor er zu Ende sprechen konnte, unterbrach ihn der Kaktus ohne Namen:*"Das ist es!" "Was?" "Wir nennen mich Spike!Das heißt auf englisch Spitze!" Und Spike und Piek waren glücklich endlich einen Namen gefunden zu haben. 
  
