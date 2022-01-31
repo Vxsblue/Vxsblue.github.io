@@ -48,4 +48,6 @@ Sie kamen an und Arn öffnete die Tür mit einem Schlüssel.
 Fortsetzung folgt...
 
 # 🐧 Tux auf Reisen 3✈
-Tux  sah sich staunend um. Im Zimmer standen ein großes Bett, ein großräumiger Schrank und eine kleine,hölzerne Kommode. An der Wand hing ein Fernseher. Es gab außerdem noch zwei Türen;Tux öffnete sie nacheinander. Hinter einer,der großen, war ein Balkon mit wunderbarer Aussicht, hinter der anderen Tür das Badezimmer.Tux sagte:*"Das ist sehr schön! Aber wo ist der Speisesa.."* Bevor er zu Ende sprechen konnte sah er, das Arn weg war. Und auf der Kommode lag ein Hotel Plan..
+Tux  sah sich staunend um. Im Zimmer standen ein großes Bett, ein großräumiger Schrank und eine kleine,hölzerne Kommode. An der Wand hing ein Fernseher. Es gab außerdem noch zwei Türen;Tux öffnete sie nacheinander. Hinter einer,der großen, war ein Balkon mit wunderbarer Aussicht, hinter der anderen Tür das Badezimmer.Tux sagte:*"Das ist sehr schön! Aber wo ist der Speisesa.."* Bevor er zu Ende sprechen konnte sah er, das Arn weg  war. Und auf der Kommode lag ein Hotel Plan..
+
+
